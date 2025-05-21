@@ -1,43 +1,62 @@
 # BYI
 
-🂱 🃜 🃚 🃖 🃁 🂭 🂺
+┄ ─ 𐎟 ┄ ─ ┄─┄─┄─┄─┄ ─ ┄ 𐎟 ─
 
-BEFORE YOU INTERACT WITH ME, DO NOT INTERACTS
+BY ORDER OF THE OVERSEER COUNCIL The following file describes a CLASS VIII Cognitohazard, And is a level 5/3000 Classified. Unauthorized access is forbidden.
 
-˖ ࣪⊹ ִ┈┈┈┈ ♰ ┈┈┈┈ ⊹ ִֶָ𓂅
+╰┈➤ THE SCP FOUNDATION.
 
-BYI
+┄ ─ 𐎟 ┄ ─ ┄─┄─┄─┄─┄ ─ ┄ 𐎟 ─
 
-˖ ࣪⊹ ִ┈┈┈┈ ♰ ┈┈┈┈ ⊹ ִֶָ𓂅
+Authenticating . . . . . .
 
+. . .
 
-Before you interact with me, I do have an anxiety disorder. Meaning i cannot start conversations alot. 
+. . .
 
-I do allow cuddles or people to sit with me, Just please do not cover me due to a general annoyance to covering. It is my boundary, Please respect it.
+Welcome, Overseer! [ 05-3 ]
 
-When i get comfy with people, I tend to be very very talkative and annoying. If it gets to much for you, Pleaase tell me. Otherwise i will not know.
+Please enter your personal PIN To commence the classified data retrevial.
 
-I tend to be very silent towards people.
+Loading File. . .
 
-˖ ࣪⊹ ִ┈┈┈┈ ♰ ┈┈┈┈ ⊹ ִֶָ𓂅
+. . .
 
-DNI
+. . .
 
-˖ ࣪⊹ ִ┈┈┈┈ ♰ ┈┈┈┈ ⊹ ִֶָ𓂅
+. . .
+
+Authorization Granted, Welcome Overseer.
+
+┄ ─ 𐎟 ┄ ─ ┄─┄─┄─┄─┄ ─ ┄ 𐎟 ─
+
+L O G - 3 4 5 . DATE : MAY 20TH, 2025.
+
+. . BYI / DNI . .
+
+Before interacting with me, Keep in mind i have Generalized Anxiety Disorder. Meaning i cannot start conversations normally. 
+
+I do however, Allow cuddles. Or people to sit with me. Though i do get annoyed when someone covers me. It is apart of my boundaries.
+
+When i get comfy with someone, I tend to be very talkative and annoying. If it gets too much, Please tell me to tone it down ! Otherwise i will not know at all.
+
+I am not a confrontational person, And i am not willing to have another relationship due to the fact ive had bad relationships in the past !
+
+I tend to be very silent at first !
+
+. . DNI . .
+
+FANDOMS
 
 Hazbin Hotel
 
 Helluva Boss
 
-Rupauls drag race fans ( iwec )
+Dandys World
 
-Dandys world
+JJK [ Thin Ice ] 
 
-MHA
-
-JJK ( Iwecuf )
-
-Tcoaal
+TCOAAL
 
 Genshin Impact
 
@@ -45,8 +64,60 @@ Honkai Starrail
 
 Wuthering Waves
 
-Fullmetal Alchemist
+FullMetal Alchemist
 
-One piece
+And any other toxic fandom i did not list.
 
-And other toxic fandoms.
+GENERAL
+
+Proshippers
+
+Darkshippers
+
+Groomers
+
+Prosaken
+
+Toxic Comshippers
+
+ProFic
+
+Lolicons
+
+Necros
+
+People who normalize Yanderes
+
+People who normalize Cults
+
+Shotacons
+
+Non Cons
+
+Kawaii Gore People
+
+NanaCon
+
+KodaCon
+
+Radqueer
+
+Pedophiles
+
+MapPrides
+
+Zoophiles
+
+┄ ─ 𐎟 ┄ ─ ┄─┄─┄─┄─┄ ─ ┄ 𐎟 ─
+
+FILE ACCESS REVOKED
+
+LOGGING YOU OUT . . .
+
+. . .
+
+. . .
+
+. . .
+
+GOODBYE, OVERSEER.
