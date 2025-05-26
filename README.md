@@ -1,36 +1,10 @@
 # BYI
 
-┄ ─ 𐎟 ┄ ─ ┄─┄─┄─┄─┄ ─ ┄ 𐎟 ─
+THE SPAWN BLESSES US! DON'T YOU AGREE, AZURE?
 
-BY ORDER OF THE OVERSEER COUNCIL The following file describes a CLASS VIII Cognitohazard, And is a level 5/3000 Classified. Unauthorized access is forbidden.
+THE SPAWNS WORD IS RIGHT, DO NOT DOUBT IT.
 
-╰┈➤ THE SCP FOUNDATION.
-
-┄ ─ 𐎟 ┄ ─ ┄─┄─┄─┄─┄ ─ ┄ 𐎟 ─
-
-Authenticating . . . . . .
-
-. . .
-
-. . .
-
-Welcome, Overseer! [ 05-3 ]
-
-Please enter your personal PIN To commence the classified data retrevial.
-
-Loading File. . .
-
-. . .
-
-. . .
-
-. . .
-
-Authorization Granted, Welcome Overseer.
-
-┄ ─ 𐎟 ┄ ─ ┄─┄─┄─┄─┄ ─ ┄ 𐎟 ─
-
-L O G - 3 4 5 . DATE : MAY 20TH, 2025.
+---------------------------------------------------
 
 . . BYI / DNI . .
 
@@ -110,14 +84,6 @@ Zoophiles
 
 ┄ ─ 𐎟 ┄ ─ ┄─┄─┄─┄─┄ ─ ┄ 𐎟 ─
 
-FILE ACCESS REVOKED
+THE SPAWN IS RIGHT, THEIR WORD IS THE CORRECT ANSWER TO THIS WORLD.
 
-LOGGING YOU OUT . . .
-
-. . .
-
-. . .
-
-. . .
-
-GOODBYE, OVERSEER.
+DO NOT DOUBT THEIR WORDS, THE SPAWN REQUIRES BLOOD /DRAWN/.
